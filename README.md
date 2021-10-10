@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Elias-Klotz
-- 👀 I’m interested in me
+- 👀 I’m interested in my life
 - 🌱 I’m currently learning all
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me mail, slack, discord whatsapp telegram, telefon nur über discord (handy elefonat defekt)
